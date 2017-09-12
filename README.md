@@ -6,7 +6,7 @@
 _Munrina Kaur Bawa_
 
 **Hometown**
-_Ottawaw,Ontario_
+_Ottawa,Ontario_
 
 **Middle School Attended**
 _Glen Cairn Public School_
@@ -18,7 +18,7 @@ _Mother:, Mandeep Kaur Bawa Father:,Satvinder Singh Bawa, Sister: Jusrina Kaur B
 _Competitive Paddling, Watching netflix , walking_
 
 **Favourite Music, Song**
-_Rumour has it Byu Adele
+_Rumour has it By Adele
 
 **Favourite Movie, Actor, Actress**
 _Forrest Gump, Leonardo Dicaprio, Margot Robbie_
