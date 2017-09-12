@@ -27,7 +27,7 @@ _Forrest Gump, Leonardo Dicaprio, Margot Robbie_
 _Ice-Cream because its nice and cold and also because I have a huge sweetooth_
 
 **Strengths and Weaknesses**
-_Strengths:Public Speaking and drama Weaknesses:Anything related to visual arts_
+_Strengths: Public Speaking and drama Weaknesses:Anything related to visual arts_
 
 **Languages you speak**
 _Punjabi and English_
